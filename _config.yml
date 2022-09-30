@@ -1,2 +1,2 @@
-ruby -v
+remote_themes: pages-themes/hacker@v0.0.1
 theme: hacker
