@@ -11,19 +11,19 @@ I really loved the use of practical effects by the costume and set designers. Es
 # Jennifer's Body 💀💀💀💀💀💀💀💀💀💀/10 (10/10)
 Theater Rating: R; Release: 2009; Genre: Horror/Comedy; Run-time: 1 hour + 42 minutes
 
-<img src=https://m.media-amazon.com/images/M/MV5BMTMxNzYwMjc1Ml5BMl5BanBnXkFtZTcwNDI3MDE3Mg@@._V1_FMjpg_UX1000_.jpg>
+<img>![img](https://m.media-amazon.com/images/M/MV5BMTMxNzYwMjc1Ml5BMl5BanBnXkFtZTcwNDI3MDE3Mg@@._V1_FMjpg_UX1000_.jpg)
 
 This movie has recently become a cult classic and for great reason, it's jam-packed full of funny one liners like "I am a god" and "I eat boys", which even if it wasn't explicitly said the idea was there and it gets stuck in my head very fast. The soundtrack is absolutely amazing, which is expected for the time, since it was the height of the emo scene; it makes you feel like you're living in the early 2000's even if it's way past that. The not so obvious motif of reclamation, specifically after going through trauma that was inflicted due to sexual violence is so prominent within the movie and even though it may not have been the best representation that people needed, it definitely feels real. The intense need for revenge, going after those who wronged you and used you for their entertainment was strong within Jennifer's arc and later bled into Needy's. The outfits really felt like something high schooler's would wear, so they definitely deserve some points for that. I really appreciated the scene where Jennifer tries to put makeup on after her "demonic" transformation; a symbol for peforming femininity, but also as a way of trying to get back her former self after a traumatizing event.
 
 # Scream 💀💀💀💀💀💀💀💀💀👻/10 (9.5/10)
 Theater Rating: R; Release: 1996; Genre: Horror/Mystery; Run-time: 1 hour + 40 minutes
 
-<img src=https://m.media-amazon.com/images/I/51KMfJ6F1RL._AC_SY580_.jpg>
+<img>![img](https://m.media-amazon.com/images/I/51KMfJ6F1RL._AC_SY580_.jpg)
 
 It definitely has some iconic lines that are constantly quoted like "Do you like scary movies?" and "Please don't kill me Mr. Ghostface, I wanna be in the sequel.", it's definitely one of those gateway slasher films. Once you watch it you sort of want to start watching other slasher movies and maybe you'll navigate through different horror genres until you find one that you really like. In terms of "final girls" Sidney is one of the most popular ones that is known in the wider rings of society. It's been five movies and she's still surviving Ghostface. It's definitey a fun little slasher to watch, it also mackes a mockery of slashers whilst being a slasher itself.
 
 # First Kill 💀💀💀💀💀💀💀💀💀💀💀/10 (11/10)
 Rating: TV-MA; Release: 2022; Genre: Horror/Drama; Run: 1 season (8 episodes)
 
-<img src=https://pbs.twimg.com/media/FZNAkmpUsAE1Ry5.jpg:large>
+<img>![img](https://pbs.twimg.com/media/FZNAkmpUsAE1Ry5.jpg:large)
  
