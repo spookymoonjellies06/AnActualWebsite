@@ -25,6 +25,6 @@ It definitely has some iconic lines that are constantly quoted like "Do you like
 # Prey 
 Theater Rating: R' Release: 2022; Genre: Horror/Action/Sci-fi; Run-time: 1 hour + 40 minutes
 
-<img src=https://resizing.flixster.com/pbJEPbmzbJO7G6_fE7Sij-2rMuY>
+<img src=https://m.media-amazon.com/images/M/MV5BMDBlMDYxMDktOTUxMS00MjcxLWE2YjQtNjNhMjNmN2Y3ZDA1XkEyXkFqcGdeQXVyMTM1MTE1NDMx._V1_.jpg>
 
 This movie was
