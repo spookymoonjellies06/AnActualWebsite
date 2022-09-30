@@ -22,9 +22,7 @@ Theater Rating: R; Release: 1996; Genre: Horror/Mystery; Run-time: 1 hour + 40 m
 
 It definitely has some iconic lines that are constantly quoted like "Do you like scary movies?" and "Please don't kill me Mr. Ghostface, I wanna be in the sequel.", it's definitely one of those gateway slasher films. Once you watch it you sort of want to start watching other slasher movies and maybe you'll navigate through different horror genres until you find one that you really like. In terms of "final girls" Sidney is one of the most popular ones that is known in the wider rings of society. It's been five movies and she's still surviving Ghostface. It's definitey a fun little slasher to watch, it also mackes a mockery of slashers whilst being a slasher itself.
 
-# Prey 
-Theater Rating: R' Release: 2022; Genre: Horror/Action/Sci-fi; Run-time: 1 hour + 40 minutes
+# First Kill 💀💀💀💀💀💀💀💀💀💀💀/10 (11/10)
+Rating: TV-MA; Release: 2022; Genre: Horror/Drama; Run: 1 season (8 episodes)
 
-<img src=https://m.media-amazon.com/images/M/MV5BMDBlMDYxMDktOTUxMS00MjcxLWE2YjQtNjNhMjNmN2Y3ZDA1XkEyXkFqcGdeQXVyMTM1MTE1NDMx._V1_.jpg>
-
-This movie was
+<img src=https://pbs.twimg.com/media/FZNAkmpUsAE1Ry5.jpg:large>
