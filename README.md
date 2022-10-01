@@ -5,7 +5,7 @@ Each of my ratings are going to be done based on how much I liked watching them,
 # Ginger Snaps 💀💀💀💀💀💀💀💀💀👻/10 (9.5/10)
 Theater Rating: Not Rated; Release: 2000; Genre: Horror/Fantasy; Run-time: 1 hour + 48 minutes
 
-<img>![](https://m.media-amazon.com/images/M/MV5BMjY4OWNjYWQtODM2NC00MDk3LTgzMDgtM2QzZWFmYTNlNDk2XkEyXkFqcGdeQXVyMTQxNzMzNDI@._V1_.jpg =300x300)
+<img>![img](https://m.media-amazon.com/images/M/MV5BMjY4OWNjYWQtODM2NC00MDk3LTgzMDgtM2QzZWFmYTNlNDk2XkEyXkFqcGdeQXVyMTQxNzMzNDI@._V1_.jpg)
 
 Source: [link](https://www.imdb.com/title/tt0210070/)
 
@@ -16,7 +16,7 @@ I really loved the use of practical effects by the costume and set designers. Es
 # Jennifer's Body 💀💀💀💀💀💀💀💀💀💀/10 (10/10)
 Theater Rating: R; Release: 2009; Genre: Horror/Comedy; Run-time: 1 hour + 42 minutes
 
-<img>![](https://m.media-amazon.com/images/M/MV5BMTMxNzYwMjc1Ml5BMl5BanBnXkFtZTcwNDI3MDE3Mg@@._V1_FMjpg_UX1000_.jpg =300x300)
+<img>![img](https://m.media-amazon.com/images/M/MV5BMTMxNzYwMjc1Ml5BMl5BanBnXkFtZTcwNDI3MDE3Mg@@._V1_FMjpg_UX1000_.jpg)
 
 Source: [link](https://www.imdb.com/title/tt1131734/)
 
@@ -27,7 +27,7 @@ This movie has recently become a cult classic and for great reason, it's jam-pac
 # Scream 💀💀💀💀💀💀💀💀💀👻/10 (9.5/10)
 Theater Rating: R; Release: 1996; Genre: Horror/Mystery; Run-time: 1 hour + 40 minutes
 
-<img>![](https://m.media-amazon.com/images/I/51KMfJ6F1RL._AC_SY580_.jpg =300x300)
+<img>![img](https://m.media-amazon.com/images/I/51KMfJ6F1RL._AC_SY580_.jpg)
 
 Source: [link](https://www.amazon.com/Scream-Poster-Frameless-inch%EF%BC%8830cm-46cm%EF%BC%89-LT-071/dp/B086YRV9RX=300x300)
 
@@ -38,9 +38,9 @@ It definitely has some iconic lines that are constantly quoted like _"Do you lik
 # First Kill 💀💀💀💀💀💀💀💀💀💀💀/10 (11/10)
 Rating: TV-MA; Release: 2022; Genre: Horror/Drama; Run: 1 season (8 episodes)
 
-<img>![](https://pbs.twimg.com/media/FZNAkmpUsAE1Ry5.jpg:large)
+<img>![img](https://pbs.twimg.com/media/FZNAkmpUsAE1Ry5.jpg:large)
  
-Source: [link](https://whatsnewonnetflix.com/sweden/2411083/first-kill-2022 =300x300)
+Source: [link](https://whatsnewonnetflix.com/sweden/2411083/first-kill-2022)
 
 Fun Facts: The show was originally based off the short story _Vampires Never Get Old: Tales with Fresh Bite_, written by V.E. Schwab, so the first couple episodes follow it pretty well. The pilot episode was also written by V.E. Schwab, after the rights for her short story were bought by Netflix. The show is set in Goergia, and most of the show was actually filmed in the location that the story inhabited; which is a huge difference compared to most television shows, which usually film in other states or Canada. Another other media fact is that Elizabeth Mitchell, who plays Margot Fairmont in the show, also played the ice queen in ABC's _Once Upon a Time_ in 2014.
 
