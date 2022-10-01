@@ -55,4 +55,4 @@ Scream: [link](https://www.insider.com/scream-movies-cool-facts-you-may-not-know
 
 First Kill: [link](https://netflixlife.com/2022/06/10/facts-about-netflix-first-kill-may-not-know/) [link](https://www.seventeen.com/celebrity/movies-tv/a40013319/netflix-new-series-first-kill/)
 
-<p align=center> Thank you for reading, I hope you enjoyed and learned more about some fun horrors. Or that you leave wanting to watch them, much luck on your horror film journey!!! </p>
+# <p align=center> Thank you for reading, I hope you enjoyed and learned more about some fun horrors. Or that you leave wanting to watch them, much luck on your horror film journey!!! </p>
