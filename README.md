@@ -54,3 +54,5 @@ Jennifer's Body: [link](https://www.imdb.com/title/tt1131734/trivia/) [link](htt
 Scream: [link](https://www.insider.com/scream-movies-cool-facts-you-may-not-know-2021-10#barrymore-accidentally-called-the-police-while-filming-6) [link](https://m.imdb.com/title/tt0117571/trivia/)
 
 First Kill: [link](https://netflixlife.com/2022/06/10/facts-about-netflix-first-kill-may-not-know/) [link](https://www.seventeen.com/celebrity/movies-tv/a40013319/netflix-new-series-first-kill/)
+
+<p align=center> Thank you all for readin, I hope you enjoyed and learned more about some fun horrors!! </p>
