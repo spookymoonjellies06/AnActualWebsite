@@ -1,5 +1,5 @@
 # Hungry For Horrors
-I watch widely popular horror movies and occasionally tv-shows, **cult-classics** even, and rate them on a skull-o-meter. Read all about the fun facts that came out of the making of these movies and some of my personal opinions on what makes these movies so awesome!!
+I watch widely popular horror movies and occasionally tv-shows, _cult-classics_ even, and rate them on a skull-o-meter. Read all about the fun facts that came out of the making of these movies and some of my personal opinions on what makes these movies so awesome!!
 # Work Those Ratings!!
 Each of my ratings are going to be done based on how much I liked watching them, what I found cool about them, really anything that stood out to me. The ratings will be out of 10 skulls each, half points may be used, if they are they'll be represented by ghosts.
 # Ginger Snaps 💀💀💀💀💀💀💀💀💀👻/10 (9.5/10)
@@ -26,11 +26,13 @@ Theater Rating: R; Release: 1996; Genre: Horror/Mystery; Run-time: 1 hour + 40 m
 
 Source: [link](https://www.amazon.com/Scream-Poster-Frameless-inch%EF%BC%8830cm-46cm%EF%BC%89-LT-071/dp/B086YRV9RX)
 
-It definitely has some iconic lines that are constantly quoted like "Do you like scary movies?" and "Please don't kill me Mr. Ghostface, I wanna be in the sequel.", it's definitely one of those gateway slasher films. Once you watch it you sort of want to start watching other slasher movies and maybe you'll navigate through different horror genres until you find one that you really like. In terms of "final girls" Sidney is one of the most popular ones that is known in the wider rings of society. It's been five movies and she's still surviving Ghostface. It's definitey a fun little slasher to watch, it also mackes a mockery of slashers whilst being a slasher itself.
+It definitely has some iconic lines that are constantly quoted like "Do you like scary movies?" and "Please don't kill me Mr. Ghostface, I wanna be in the sequel.", it's definitely one of those gateway slasher films, once you watch it you sort of want to start watching other slasher movies and maybe you'll navigate through different horror genres until you find one that you really like. In terms of "final girls" Sidney is one of the most popular ones that is known in the wider rings of society. It's been five movies and she's still surviving Ghostface. It's definitely a fun little slasher to watch, it also mackes a mockery of slashers whilst being a slasher itself. Scream has really become one of the more popular slasher series especially with younger audiences like teens and young adults since it wasn't made that long ago, and its popularity, wfrom what I've seen so far, is very warranted.
 
 # First Kill 💀💀💀💀💀💀💀💀💀💀💀/10 (11/10)
 Rating: TV-MA; Release: 2022; Genre: Horror/Drama; Run: 1 season (8 episodes)
 
 <img>![img](https://pbs.twimg.com/media/FZNAkmpUsAE1Ry5.jpg:large)
  
- Source: [link](https://whatsnewonnetflix.com/sweden/2411083/first-kill-2022)
+Source: [link](https://whatsnewonnetflix.com/sweden/2411083/first-kill-2022)
+
+I cannot recommend this show enough, it might be corny and campy, but oh my is it amazing. First of all, you have a black saphhic lead **and** she's a monster hunter. If that doesn't pull you in right away, then let me convinve you some more. It also has queer vampites and teen awkwardness. The show follows Calliope Burns and Juliette Fairmont throughout their love story as well as their respective families. Since the Burns' are a hunting family and the Fairmonts are vampires, there's obviously some family tension that makes this show very reminescent of Romeo and Juliet. It's a tragic, _forbidden_ love story and all of it is played so well by the actors. Unfortunately, the show aas cancelled by Netflix after its first seeason, and this was **not** due to lack of views. Despite it's cancellation, I really suggest giving the show a watch, a lot of time and effort was put into it and you should try and support the cast and crew that helped make this lovely show. **Plus**, the show's theme song is _thee_ scene song "The Zombie Song" by Stephanie Mabey, which was released in 2012.
