@@ -6,6 +6,7 @@ Each of my ratings are going to be done based on how much I liked watching them,
 Theater Rating: Not Rated; Release: 2000; Genre: Horror/Fantasy; Run-time: 1 hour + 48 minutes
 
 <img>![img](https://m.media-amazon.com/images/M/MV5BMjY4OWNjYWQtODM2NC00MDk3LTgzMDgtM2QzZWFmYTNlNDk2XkEyXkFqcGdeQXVyMTQxNzMzNDI@._V1_.jpg)
+![](https://m.media-amazon.com/images/M/MV5BMjY4OWNjYWQtODM2NC00MDk3LTgzMDgtM2QzZWFmYTNlNDk2XkEyXkFqcGdeQXVyMTQxNzMzNDI@._V1_.jpg300x300)
 
 Source: [link](https://www.imdb.com/title/tt0210070/)
 
